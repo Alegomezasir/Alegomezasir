@@ -7,8 +7,7 @@
  
  * me gusta el  anime
  
- * peliculas 
-
+ * soy r2d2
 
 ![pika-pi-copia](https://user-images.githubusercontent.com/115716779/195652026-21616b29-dbc4-48c8-8b49-8dfbd56b3248.jpg)
 
