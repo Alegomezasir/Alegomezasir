@@ -1,1 +1,2 @@
-# Alejandrogomezasir-buenas 
+# Alejandrogomezasir-
+LA VIDA ES UNA LENTEJA O LA TOMAS O LA DEJAS  
